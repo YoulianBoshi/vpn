@@ -37,7 +37,7 @@ Lantern shared VPN network to mobile phone use
 
 ![](https://telegra.ph/file/c852dd11a24017444839b.png)
 
-在目标(T)|：lantern.exe末尾按加入： -addr XXX.XXX.XXX.XXX:8787，然后点击--应用，配置已经完成，这时你的电脑相当于一台小型服务器了
+在目标(T)|：lantern.exe末尾处加入： -addr XXX.XXX.XXX.XXX:8787，然后点击--应用，配置已经完成，这时你的电脑相当于一台小型服务器了
 
 开启电脑移动热点
 
