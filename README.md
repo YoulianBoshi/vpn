@@ -1,7 +1,7 @@
 
 Lantern shared VPN network to mobile phone use
 
-蓝灯如何共享VPN网络至手机使用
+蓝灯如何共享VPN网络至手机使用教程
 
 一：查看自己电脑网卡IP地址，以Windows10专业版为例
 
@@ -13,13 +13,11 @@ Lantern shared VPN network to mobile phone use
 
 ![](https://telegra.ph/file/925af02b7b2c88b4b7c7d.png)
 
-方法2
-
-在桌面上按“Win+R”组合键--输入“CMD”--然后回车键
+方法2：在桌面上按“Win+R”组合键--输入“CMD”--然后回车键
 
 ![](https://telegra.ph/file/a077ab011e738a24fac72.png)
 
-复制此代码：“ipconfig/all” --然后回车键
+输入此命令：“ipconfig/all” --然后回车键
 
 ![](https://telegra.ph/file/484abfcf846fcbf851b8d.png)
 
@@ -35,9 +33,9 @@ Lantern shared VPN network to mobile phone use
 
 ![](https://telegra.ph/file/90d1a7582dd45c966cd21.png)
 
-![](https://telegra.ph/file/c852dd11a24017444839b.png)
-
 在目标(T)|：lantern.exe末尾处加入： -addr XXX.XXX.XXX.XXX:8787，然后点击--应用，配置已经完成，这时你的电脑相当于一台小型服务器了
+
+![](https://telegra.ph/file/c852dd11a24017444839b.png)
 
 开启电脑移动热点
 
