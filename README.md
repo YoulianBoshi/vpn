@@ -53,6 +53,4 @@ Lantern shared VPN network to mobile phone use
 
 谢谢您的赞赏，谢谢您的支持！
 
-![](https://telegra.ph/file/7fef1213486fe3f2ce222.png) 
-
-![](https://telegra.ph/file/6ace087355ae72a1314e2.jpg)  ![](https://telegra.ph/file/d4ddbbf7c920c92c72281.jpg)
+![微信支付宝](https://telegra.ph/file/18d16f370cce6ea10d3e3.png) 
