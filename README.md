@@ -1,4 +1,4 @@
-**侵权请联系:**youlianboshi@gmail.com
+**侵权请联系:** youlianboshi@gmail.com
 
 Lantern shared VPN network to mobile phone use
 
