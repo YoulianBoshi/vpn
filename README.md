@@ -1,11 +1,11 @@
 **侵权请联系:** youlianboshi@gmail.com
 
-由于工作原因，后续更新，请大家谅解
+签订了一年的卖身合同，离职后将去世界各地旅游✈，佛系更新😊有请大佬开发更好的工具😂😂
 
-**更多免费MTP、HTTPS、Ikev2代理节点订阅频道不怕迷路**
+**油脸博士的订阅频道**
 https://t.me/MTPdaili
 
-__核心代码__
+__以下为破解PC蓝灯的核心代码__
 
 ```
 HOOKDEF(ULONG, WINAPI, GetAdaptersAddresses, 
