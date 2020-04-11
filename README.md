@@ -5,12 +5,9 @@
 **更多免费MTP、HTTPS、Ikev2代理节点订阅频道不怕迷路**
 https://t.me/MTPdaili
 
-**有人私信要源码，以下是核心代码**
+__核心代码__
 
 ```
-破解原理为生成随机MAC地址欺骗程序达到无限试用
-以下是核心代码部分(api hook)
-
 HOOKDEF(ULONG, WINAPI, GetAdaptersAddresses, 
     __in ULONG Family,
     __in ULONG Flags,
