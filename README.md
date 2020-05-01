@@ -1,5 +1,6 @@
 **侵权请联系:** youlianboshi@gmail.com
-蓝灯破解版解压密码:youlianboshi
+
+非常感谢蓝灯官方提供VPN服务，蓝灯破解版解压密码:youlianboshi
 
 **油脸博士的订阅频道**
 https://t.me/MTPdaili
