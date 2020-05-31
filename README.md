@@ -5,31 +5,5 @@
 **油脸博士的订阅频道**
 https://t.me/MTPdaili
 
-__破解PC蓝灯核心代码__
-
-```
-HOOKDEF(ULONG, WINAPI, GetAdaptersAddresses, 
-    __in ULONG Family,
-    __in ULONG Flags,
-    __reserved PVOID Reserved,
-    __out_bcount_opt(*SizePointer) PIP_ADAPTER_ADDRESSES AdapterAddresses, 
-    __inout PULONG SizePointer
-    )
-{
-    srand( (unsigned)time( NULL ) );
- 
-    ULONG ret = Real_GetAdaptersAddresses(Family, Flags, Reserved, AdapterAddresses, SizePointer);
-    while(AdapterAddresses){
-        if (AdapterAddresses->PhysicalAddressLength >=5 ){
-            AdapterAddresses->PhysicalAddress[0] += rand();
-            AdapterAddresses->PhysicalAddress[1] += rand();
-            AdapterAddresses->PhysicalAddress[2] += rand();
-            AdapterAddresses->PhysicalAddress[3] += rand();
-            AdapterAddresses->PhysicalAddress[4] += rand();
-        }
- 
-        AdapterAddresses = AdapterAddresses->Next;
-    }
-    return ret;
-}
-```
+**非常期间大部分VPN都会被封锁，蓝灯也不例外，推荐大家下载小厂软件，手机/电脑临时邮件无限注册，显示500M其实可以7天内无限使用**
+[点击这里跳转>>](www.hato.be)
