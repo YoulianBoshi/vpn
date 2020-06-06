@@ -1,4 +1,4 @@
-**发现蓝灯官方抵抗我破解，但并没有发邮件不让我破解，若官方通知本人禁止，我将停止提供破解版,侵权请联系:** youlianboshi@gmail.com
+**新版本蓝灯不好破解，多备用几个梯子是有必要的。侵权请联系:** youlianboshi@gmail.com
 
 蓝灯破解版解压密码:youlianboshi
 
