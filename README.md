@@ -11,4 +11,4 @@
 
 **支持油脸博士一下吧，支付宝扫码每天可以领一次红包
 
-![支付宝领红包二维码]{https://telegra.ph/file/2ff5d5da7a06f8fffc663.png}
+![avatar]{https://telegra.ph/file/2ff5d5da7a06f8fffc663.png}
