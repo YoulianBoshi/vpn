@@ -6,3 +6,9 @@
 
 2020/08/07:**【入门破解思路】TikTok破解地区限制，无需拔卡，简单人人都会破解，加入油脸博士频道赶紧去瞧瞧https://t.me/joinchat/AAAAAE8cs8zM_i4rArLiQ**
 
+
+
+
+**支持油脸博士一下吧，支付宝扫码每天可以领一次红包
+
+![支付宝领红包二维码]{https://telegra.ph/file/2ff5d5da7a06f8fffc663.png}
