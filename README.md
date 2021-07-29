@@ -8,7 +8,9 @@
 
 2021/07/25: **【新品首发】油脸博士发布Baem VPN 一键破解补丁1.0，加入油脸博士频道赶紧去瞧瞧https://t.me/MTPdaili** 
 
-[Baem VPN官网>>>>](https://beam.dance/en-us)
+[BaemVPN官网>>>>](https://beam.dance/en-us)
+
+[BaemVPN已破解解锁机器码绑定，8k流畅，每个ID免费2G高速流量，重启程序无限白嫖高速流量](https://ylbs.lanzoui.com/ie7x8rww3ed)
 
 
 
