@@ -10,7 +10,7 @@
 
 [BaemVPN官网>>>>](https://beam.dance/en-us)
 
-[BaemVPN已破解解锁机器码绑定，8k流畅，每个ID免费2G高速流量，重启程序无限白嫖高速流量](https://ylbs.lanzoui.com/ie7x8rww3ed)
+[BaemVPN已解锁机器码绑定，8k流畅，每个ID免费2G高速流量，重启程序无限白嫖高速流量](https://ylbs.lanzoui.com/ie7x8rww3ed)
 
 
 
