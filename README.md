@@ -12,7 +12,7 @@
 
 [BaemVPN已解锁机器码绑定，8k流畅，每个ID免费2G高速流量，重启程序无限白嫖高速流量](https://ylbs.lanzoui.com/ie7x8rww3ed)
 
-
+2021/08/03：**【新品首发】HXwindows已破解机器码绑定，退出账号无限注册白嫖，连接VPN秒翻墙， [下载地址>>>>](https://ylbs.lanzoui.com/ijaL6s5vp1a)**
 
 **支持油脸博士一下吧，支付宝扫码每天可以领一次红包**
 
