@@ -6,7 +6,7 @@
 
 2022年3月28日： 
 
-![安卓VPN破解版下载地址，4K秒播，永久白嫖，天数越用越多，由油脸博士破解并长期维护](https://ylbs.lanzoup.com/iVd8W0278smd)
+![安卓VPN破解版下载>>>](https://ylbs.lanzoup.com/iVd8W0278smd)
 
 
 **支持油脸博士一下吧，支付宝扫码每天可以领一次红包**
