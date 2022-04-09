@@ -4,7 +4,7 @@
 
 **由于我做自媒体比较忙，以后只能在这里佛系更新了**
 
-[2022年3月28日：阿特加速器破解版，4K秒播，由网友维护](https://ylbs.lanzoup.com/iVd8W0278smd)
+~~[2022年3月28日：阿特加速器破解版，4K秒播，由网友维护](https://ylbs.lanzoup.com/iVd8W0278smd)~~
 
 [有疑问请在这里发表你的文字](https://github.com/YoulianBoshi/lantern-vpn/discussions/103)
 
