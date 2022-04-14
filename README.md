@@ -6,7 +6,7 @@
 
 [2022年3月28日：阿特加速器破解版，4K秒播，由网友维护，下载密码：ylbs](https://ylbs.lanzoup.com/iVd8W0278smd)
 
-[2022年4月14日：边缘VPN破解版，1080p流畅(最快节点3M/s)，由油脸博士破解，据官方介绍只能免费6次1H试用，之后看广告增加时间，本人已经去掉广告，去除次数限制，无限白嫖](https://ylbs.lanzoup.com/i7CIE037cqfe)
+[2022年4月14日：边缘VPN破解版，1080p流畅(最快节点3M/s)，由油脸博士破解，已去掉广告，无限白嫖](https://ylbs.lanzoup.com/i7CIE037cqfe)
 
 [有疑问请在这里发表你的文字](https://github.com/YoulianBoshi/lantern-vpn/discussions/103)
 
