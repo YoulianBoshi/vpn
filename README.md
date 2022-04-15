@@ -8,7 +8,7 @@
 
 [2022年4月14日：边缘VPN破解版，1080p流畅(最快节点3M/s)，由油脸博士破解，已去掉广告，无限白嫖](https://ylbs.lanzoup.com/i7CIE037cqfe)
 
-[2022年4月15日：快喵VPN去广告清爽版，由油脸博士修改，APP自带很多bug，不是修改导致，如果点击"连接"没有反应，清空APP缓存即可](https://ylbs.lanzoup.com/ie4EF039ll2h)
+[2022年4月15日：快喵VPN去广告清爽版，由油脸博士修改，初次安装，如果点击"连接"没有反应，清空APP缓存再打开连接即可](https://ylbs.lanzoup.com/ie4EF039ll2h)
 
 [有疑问请在这里发表你的文字](https://github.com/YoulianBoshi/lantern-vpn/discussions/103)
 
