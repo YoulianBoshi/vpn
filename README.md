@@ -6,9 +6,7 @@
 
 [2022年3月28日：阿特加速器破解版，4K秒播，由网友维护，下载密码：ylbs](https://ylbs.lanzoup.com/iVd8W0278smd)
 
-[2022年4月14日：边缘VPN破解版，1080p流畅(最快节点3M/s)，由油脸博士破解，已去掉广告，无限白嫖](https://ylbs.lanzoup.com/i7CIE037cqfe)
-
-[2022年4月15日：快喵VPN去广告清爽版，由油脸博士修改，初次安装，如果点击"连接"没有反应，清空APP缓存再打开连接即可](https://ylbs.lanzoup.com/ie4EF039ll2h)
+[2022年4月21日：Tap Translate Screen_1.59是一款屏幕翻译器，直接在屏幕上识别并翻译外语，已汉化，免费使用](https://ylbs.lanzoul.com/iAWlJ03k1wgd)
 
 [有疑问请在这里发表你的文字](https://github.com/YoulianBoshi/lantern-vpn/discussions/103)
 
