@@ -14,6 +14,8 @@
 
 [有疑问请在这里发表你的文字](https://github.com/YoulianBoshi/lantern-vpn/discussions/103)
 
+[油脸博士的Google网上论坛](https://groups.google.com/g/youlianboshi)
+
 
 **支持油脸博士一下吧，支付宝扫码每天可以领一次红包**
 
