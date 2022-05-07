@@ -25,8 +25,8 @@
 <details><summary>日常更新节点</summary>
 <p>
 
-#### We can hide anything, even code!
-```
+#### 点击一下即可全部复制
+
     ss://YWVzLTI1Ni1nY206WTZSOXBBdHZ4eHptR0M@172.99.188.71:5601
     ss://YWVzLTI1Ni1nY206UmV4bkJnVTdFVjVBRHhH@172.99.188.71:7002
     ss://YWVzLTI1Ni1jZmI6YUxwUXRmRVplNDQ1UXlIaw@152.89.210.105:9098
