@@ -16,6 +16,12 @@
 
 [油脸博士的Google网上论坛](https://groups.google.com/g/youlianboshi)
 
+**支持油脸博士一下吧，支付宝扫码每天可以领一次红包**
+
+![avatar](https://telegra.ph/file/2ff5d5da7a06f8fffc663.png)
+
+
+
 <details><summary>日常更新节点</summary>
 <p>
 
@@ -31,9 +37,9 @@
 
 
 
-**支持油脸博士一下吧，支付宝扫码每天可以领一次红包**
 
-![avatar](https://telegra.ph/file/2ff5d5da7a06f8fffc663.png)
+
+
 
 
 
