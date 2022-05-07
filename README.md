@@ -16,6 +16,16 @@
 
 [油脸博士的Google网上论坛](https://groups.google.com/g/youlianboshi)
 
+<details><summary>CLICK ME</summary>
+<p>
+
+#### We can hide anything, even code!
+
+    ```ruby
+      puts "Hello World"
+    ```
+
+</details> ```</p>
 
 **支持油脸博士一下吧，支付宝扫码每天可以领一次红包**
 
