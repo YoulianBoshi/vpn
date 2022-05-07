@@ -1,7 +1,7 @@
 **如果觉得满意请在右上角点击“Star”给个星😄
 
 
-<details><summary>点击这里打开</summary>
+<details><summary>点击此处打开信息</summary>
 <p>
 
 [2022年3月28日：阿特加速器破解版，4K秒播，由网友维护，下载密码：ylbs](https://ylbs.lanzoup.com/iVd8W0278smd)
