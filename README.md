@@ -8,9 +8,9 @@
 
 [2022年5月6日]：某加速注册即送100G流量，仅安卓客户端，[有效期30天，有NF节点，邮箱无需验证，流量用完后可以再注册，觉得满意支持付费体验](https://az.400511.net/)
 
-[有疑问请在这里发表你的文字](https://github.com/YoulianBoshi/lantern-vpn/discussions/103)
-
 2022年5月22日：[某加速器（trojan协议），4K无压力，IPLC专线支持Netflix，白嫖你懂的](https://falemon.com/s/acn66/ptijdns)
+
+[有疑问请在这里发表你的文字](https://github.com/YoulianBoshi/lantern-vpn/discussions/103)
 
 
 **支持油脸博士一下吧，支付宝扫码每天可以领一次红包**
