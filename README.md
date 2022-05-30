@@ -8,7 +8,7 @@
 
 [2022年5月6日]：某加速注册即送100G流量，仅安卓客户端，[有效期30天，有NF节点，邮箱无需验证，流量用完后可以再注册，觉得满意支持付费体验](https://az.400511.net/)
 
-Netflix内置账号版，老外制作纯属分享，需要挂支持流媒体的节点才能看[下载地址>>>>](https://ylbs.lanzoup.com/iLl0x05exdcd)
+VyrpVPN内置账号版，老外制作纯属分享，未测试[下载地址>>>>](https://ylbs.lanzoul.com/iG6VS05n3rba)
 
 
 [有疑问请在这里发表你的文字](https://github.com/YoulianBoshi/lantern-vpn/discussions/103)
