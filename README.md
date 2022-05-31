@@ -10,6 +10,7 @@
 
 VyrpVPN内置账号版，老外制作纯属分享，未测试[下载地址>>>>](https://ylbs.lanzoul.com/iG6VS05n3rba)
 
+[发现一款好用的唯W屁P恩N: 支持安卓/iOS/Windows/macOS客户端。下载安装无须注册，开箱即用，一键连接。全部IEPL专线中转，速度超快~邀请你一起使用，免费用5天，试试看: ](https://flm11.com/s/acn66/ptijdns)
 
 [有疑问请在这里发表你的文字](https://github.com/YoulianBoshi/lantern-vpn/discussions/103)
 
