@@ -6,7 +6,7 @@
 
 2022年4月30日；WarpVPN利用脚本无限刷邀请，无限白嫖 [官方APP下载地址](https://1.1.1.1/) ，打开需要挂VPN，连接不上尝试重置安全密钥，DNS设置成HTTPS模式，反正网速也就7~8M/s,网速时快时慢， [全自动在线刷流量脚本，等待脚本加载完后，复制warpvpn手机里的ID粘贴在下方即可](https://replit.com/@aliilapro/warp)
 
-[2022年6月14日]：[电脑版EXP一键破解补丁，免费白嫖电脑VPN，解压密码：youlianboshi](https://ylbs.lanzoup.com/ioD0N06epnxc)
+[2022年6月14日]：~~已失效[电脑版EXP一键破解补丁，免费白嫖电脑VPN，解压密码：youlianboshi](https://ylbs.lanzoup.com/ioD0N06epnxc)~~
 
 VyrpVPN内置账号版，老外制作纯属分享，未测试[下载地址>>>>](https://ylbs.lanzoul.com/iG6VS05n3rba)
 
