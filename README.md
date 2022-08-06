@@ -1,6 +1,8 @@
 **如果觉得满意请在右上角点击“Star”给个星😄
 
-2022年6月18日：[安卓破解VPN第二弹，4K无压力，VIP高速节点，越用时间越多，由网友维护，禁止二改注入弹窗和贩卖，油脸博士本着免费的心态分享，请不要挑战博士底线](https://ylbs.lanzoup.com/im6Jt06ln01c)
+2022年8月6日：[VPN热点，安装包仅200k，免root分享你的VPN代理给其它设备翻墙，之前分享的工具使用方法一样，多研究一下](https://pan.lanzoup.com/ivwZx08w3b8d)
+
+2022年6月18日：[安卓破解版，靓仔VPN，到期时间2031年，4k无压力](https://ylbs.lanzoup.com/im6Jt06ln01c)
 
 ~~[2022年3月28日：阿特加速器破解版，4K秒播，由网友维护，下载密码：ylbs](https://ylbs.lanzoup.com/iVd8W0278smd)~~
 
