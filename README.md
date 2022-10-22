@@ -1,6 +1,5 @@
 **如果觉得满意请在右上角点击“Star”给个星★😂
-2022年4月30日；WarpVPN利用脚本无限刷邀请，无限白嫖 [官方APP下载地址](https://1.1.1.1/) ，打开需要挂VPN，连接不上尝试重置安全密钥，DNS设置成HTTPS模式，反正网速也就7~8M/s,网速时快时慢， [全自动在线刷流量脚本，等待脚本加载完后，复制warpvpn手机里的ID粘贴在下方即可](https://replit.com/@aliilapro/warp)
-
+2022年4月30日；1111VPN利用脚本无限刷邀请 [官方APP下载地址](https://1.1.1.1/) ，[复制warpvpn手机里的ID粘贴在下方即可](https://replit.com/@aliilapro/warp)
 
 [发现一款好用的唯W屁P恩N: 支持安卓/iOS/Windows/macOS客户端。下载安装无须注册，开箱即用，一键连接。全部IEPL专线中转，速度超快~邀请你一起使用，免费用5天，试试看: ](https://flm11.com/s/acn66/ptijdns)
 
