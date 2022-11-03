@@ -1,5 +1,7 @@
 **如果觉得满意请在右上角点击“Star”给个星★😂
 
+[屏幕点击翻译"Tap Translate Screen"_v1.62解锁VIP/汉化简体中文](https://pan.lanzoup.com/i8O5E0f5dr4f)
+
 [biubiuvpn，法国路线20M/s，无需注册，免费白嫖，由于中国法律政策不支持中国地区，需要挂VPN打开，大部分节点都能用](https://biubiuvpn.app/#/share)
 
 [某VPN无ROOT白嫖方法:打开手机设置找到“时间和日期”-“关闭网络时间”，然后把时间和日期调回N年以前就可以无限白嫖了，VPN连上后再调回正常不影响VPN使用，路线支持流媒体](http://hulijiasu.com/)
