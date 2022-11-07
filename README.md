@@ -1,5 +1,7 @@
 **如果觉得满意请在右上角点击“Star”给个星★😂
 
+[奈飞直装破解版，免登陆，勿删除/修改/添加/任何地方，一般都能一直用下去，流媒体节点自己准备好，闪退就在VMos虚拟机里安装]
+
 [小火箭加速器去广告清爽版，界面非常干净，油管4K测试无压力](https://pan.lanzoup.com/idmiG0fe1ied)
 
 [屏幕点击翻译"Tap Translate Screen"_v1.62解锁VIP/汉化简体中文](https://pan.lanzoup.com/i8O5E0f5dr4f)
