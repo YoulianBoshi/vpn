@@ -1,6 +1,8 @@
 **如果觉得满意请在右上角点击“Star”给个星★😂
 
-Flow微批恩账号/密码/同:oopb8@smartnator.com，自己下载客户端登陆，过期再补
+windscribe白嫖30G兑换码，کد جدید windscribe 30GBترافیک رایگان KOOBIDEH
+
+Flow微批恩账号/密码/:oopb8@smartnator.com，万人🌿，过期更新
 
 免费白嫖机场思路，谷歌搜索关键字，每行单独去搜索
 
