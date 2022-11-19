@@ -2,7 +2,7 @@
 
 西部数据库泄露，每一次刷新都有新的订阅，不知哪位大佬良心贡献，谢谢啦 https://westdata.cf/link
 
-windscribe白嫖30G兑换码，کد جدید windscribe 30GBترافیک رایگان KOOBIDEH
+windscribe白嫖30G兑换码，کد جدید windscribe 30GBترافیک رایگان KOOBIDEH，限时兑换
 
 Flow微批恩账号/密码/:oopb8@smartnator.com，万人🌿，过期更新
 
