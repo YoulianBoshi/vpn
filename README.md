@@ -4,7 +4,9 @@
 
 windscribe白嫖30G兑换码，کد جدید windscribe 30GBترافیک رایگان KOOBIDEH，限时兑换
 
-Flow微批恩账号/密码/:oopb8@smartnator.com，万人🌿，过期更新
+Astrill微批恩账号/密码:eaqko@mailto.plus，万人🌿，过期更新，大厂4k稳定无压力
+
+Flow微批恩账号/密码/:oopb8@smartnator.com，万人🌿，过期更新，大厂4k稳定无压力
 
 免费白嫖机场思路，谷歌搜索关键字，每行单独去搜索
 
