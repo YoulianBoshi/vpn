@@ -1,8 +1,6 @@
 **如果觉得满意请在右上角点击“Star”给个星★😂
 
-Astrill微批恩账号/密码:eaqko@mailto.plus，万人🌿，过期更新，大厂4k稳定无压力
-
-Flow微批恩账号/密码:oopb8@smartnator.com，万人🌿，今天续费了，时间没更新重新登录
+[发现一款好用的唯W屁P恩N:全部IEPL专线中转，速度超快~邀请你一起使用，免费用5天，试试看: ](https://flm11.com/s/acn66/ptijdns)
 
 西部数据库泄露，每一次刷新都有新的订阅，不知哪位大佬良心贡献，谢谢啦 https://westdata.cf/link
 
@@ -29,8 +27,6 @@ auth › register
 [biubiuvpn，法国路线20M/s，免费白嫖，需要挂VPN打开](https://biubiuvpn.app/#/share)
 
 [狐狸加速器免费白嫖方法:试用到期后将手机系统时间调至大于加速器注册时间，例如2022年11月7日注册，调回2022年11月6日](http://hulijiasu.com/)
-
-[发现一款好用的唯W屁P恩N: 支持安卓/iOS/Windows/macOS客户端。下载安装无须注册，开箱即用，一键连接。全部IEPL专线中转，速度超快~邀请你一起使用，免费用5天，试试看: ](https://flm11.com/s/acn66/ptijdns)
 
 [有疑问请在这里发表你的文字](https://github.com/YoulianBoshi/lantern-vpn/discussions/103)
 
