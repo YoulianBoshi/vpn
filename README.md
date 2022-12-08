@@ -8,7 +8,7 @@ Astrill微批嗯账号/密码:mbhlxpuh48@plancetose.com
 
 flow微批蒽账号/密码：combtmp+p9bdt@gmail.com
 
-windscribe白嫖30G兑换码，کد جدید windscribe 30GBترافیک رایگان ABGOOSHT，限时兑换
+windscribe白嫖30G兑换码：ABGOOSHT，限时兑换
 
 免费白嫖机场思路，谷歌搜索关键字，每行单独去搜索
 
