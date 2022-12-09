@@ -1,8 +1,8 @@
 **如果觉得满意请在右上角点击“Star”给个星★😂
 
-[据说现在出门逛街，一部分城市“警察”会随机检查手机里是否安装Telegram/翻墙APP等违法工具，这里有方法教大家拒绝喝茶，快来看看吧](https://telegra.ph/%E5%A4%A7%E8%A1%97%E4%B8%8A%E8%AD%A6%E5%AF%9F%E7%AA%81%E8%A2%AD%E6%A3%80%E6%9F%A5%E6%89%8B%E6%9C%BA%E6%80%8E%E4%B9%88%E5%8A%9E%E5%A6%82%E4%BD%95%E9%9A%90%E8%97%8F%E8%BF%9D%E6%B3%95%E7%BF%BB%E5%A2%99%E5%B7%A5%E5%85%B7-11-30)
+[发现一款非常好用的VPN:全部IEPL专线中转，速度超快，免费试用3天，绑定邀请码送7天:PTIJDNS ](https://flm12.com/s/acn11)
 
-[发现一款好用的VPN:全部IEPL专线中转，速度超快~邀请你一起使用，免费用5天: ](https://flm12.com/s/acn11)
+[原来所有安卓手机都自带系统分身，数据各不互通，来隐藏你的小秘密吧](https://telegra.ph/%E5%A4%A7%E8%A1%97%E4%B8%8A%E8%AD%A6%E5%AF%9F%E7%AA%81%E8%A2%AD%E6%A3%80%E6%9F%A5%E6%89%8B%E6%9C%BA%E6%80%8E%E4%B9%88%E5%8A%9E%E5%A6%82%E4%BD%95%E9%9A%90%E8%97%8F%E8%BF%9D%E6%B3%95%E7%BF%BB%E5%A2%99%E5%B7%A5%E5%85%B7-11-30)
 
 Astrill微批嗯账号/密码:mbhlxpuh48@plancetose.com
 
