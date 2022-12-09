@@ -6,7 +6,7 @@
 
 Astrill微批嗯账号/密码:mbhlxpuh48@plancetose.com
 
-flow微批蒽账号/密码：combtmp+p9bdt@gmail.com
+flow微批蒽账号/密码：monherry9+qofaz@gmail.com
 
 windscribe白嫖30G兑换码：ABGOOSHT，限时兑换
 
