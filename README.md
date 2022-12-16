@@ -6,7 +6,7 @@
 
 Astrill微批嗯账号/密码:je.ffrey.e.ell.is349@gmail.com
 
-flow微批蒽账号/密码：jadenwu39+djg60@gmail.com
+~~flow微批蒽账号/密码：jadenwu39+djg60@gmail.com~~
 
 windscribe白嫖30G兑换码：ABGOOSHT，限时兑换
 
