@@ -18,7 +18,7 @@ Password: nfzwbvng
 
 Astrill微批嗯账号:936scut@psnator.com/密码:936scut@psnator.com
 
-flow微批蒽账号：rtfduzu@femailtor.com/密码：lili.9981
+~~flow微批蒽账号：rtfduzu@femailtor.com/密码：lili.9981~~
 
 windscribe白嫖30G兑换码：ABGOOSHT，限时兑换
 
