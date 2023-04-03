@@ -2,47 +2,7 @@
 
 [发现一款非常好用的VPN:全部IEPL专线中转，速度超快，免费试用3天，绑定邀请码送7天:PTIJDNS ](https://flm12.com/s/acn11)
 
-[原来所有安卓手机都自带系统分身，数据各不互通，来隐藏你的小秘密吧](https://telegra.ph/%E5%A4%A7%E8%A1%97%E4%B8%8A%E8%AD%A6%E5%AF%9F%E7%AA%81%E8%A2%AD%E6%A3%80%E6%9F%A5%E6%89%8B%E6%9C%BA%E6%80%8E%E4%B9%88%E5%8A%9E%E5%A6%82%E4%BD%95%E9%9A%90%E8%97%8F%E8%BF%9D%E6%B3%95%E7%BF%BB%E5%A2%99%E5%B7%A5%E5%85%B7-11-30)
-
-Pure微批蒽
-
-Username: purevpn0s2647022
-Password: ryhpyuisf5k6
-
-Username: purevpn0s10190105
-Password: xvsmiivn
-
-Username: purevpn0s2371342
-Password: nfzwbvng
-
-
-Astrill微批嗯账号:936scut@psnator.com/密码:936scut@psnator.com
-
-flow微批蒽账号：fdavidl073+6odax@gmail.com/密码:fdavidl073+6odax@gmail.com
-
-windscribe白嫖30G兑换码：ABGOOSHT，限时兑换
-
-免费白嫖机场思路，谷歌搜索关键字，每行单独去搜索
-
-Powered by SSPANEL
-
-Theme by editXY
-
-password › reset
-
-auth › login
-
-auth › register
-
-[蚂蚁加速器_2.5.0破解版，无限流量](https://pan.lanzoup.com/i74zY0fiu20b)
-
-[小火箭加速器去广告清爽版，界面非常干净，油管4K测试无压力](https://pan.lanzoup.com/idmiG0fe1ied)
-
-[屏幕点击翻译"Tap Translate Screen"_v1.62解锁VIP/汉化简体中文](https://pan.lanzoup.com/i8O5E0f5dr4f)
-
-[biubiuvpn，法国路线20M/s，免费白嫖，需要挂VPN打开](https://biubiuvpn.app/#/share)
-
-[狐狸加速器免费白嫖方法:试用到期后将手机系统时间调至大于加速器注册时间，例如2022年11月7日注册，调回2022年11月6日](http://hulijiasu.com/)
+快连破解补丁4.0，基于最新ban制作，下载地址https://ylbs.lanzoul.com/iwo7t0s0mhwf
 
 [有疑问请在这里发表你的文字](https://github.com/YoulianBoshi/lantern-vpn/discussions/103)
 
