@@ -1,6 +1,6 @@
 **如果觉得满意请在右上角点击“Star”给个星★😂
 
-[快柠檬PC一键破解补丁1.0，无限重置ID，可以填写我的邀请码PTJDNS获得7天时间，到期运行破解补丁重置ID白嫖，解压密码：youlianboshi](https://www.123pan.com/s/8fFAjv-9K2R.html)
+[快柠檬PC一键破解补丁1.0，无限重置ID，可以填写我的邀请码PTJDNS获得7天时间，到期运行破解补丁重置ID白嫖，补丁放安装目录运行，解压密码：youlianboshi](https://www.123pan.com/s/8fFAjv-9K2R.html)
 
 快柠檬一键补丁补丁1.0单独文件，如果提示缺少Dll文件说明缺少运行库，大家可以自行下载微软VC++运行库，或者在我提供的网盘下载https://www.123pan.com/s/8fFAjv-9K2R.html
 
