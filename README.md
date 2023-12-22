@@ -1,8 +1,8 @@
 **如果觉得满意请在右上角点击“Star”给个星★😂
 
-[快柠檬PC一键破解补丁1.0，无限重置ID，填写我的邀请码PTJDNS获得7天时间，补丁放安装目录运行，解压密码：youlianboshi](https://www.lanzoul.com/iFRNp1in9w3c)
+[快柠檬PC一键破解补丁1.0，无限重置ID，补丁放安装目录运行，解压密码：youlianboshi](https://www.lanzoul.com/iFRNp1in9w3c)
 
-快柠檬破解补丁如果提示缺少Dll文件说明缺少运行库，大家可以自行下载微软VC++运行库，或者在我提供的网盘下载https://www.123pan.com/s/8fFAjv-9K2R.html
+[快柠檬破解补丁提示缺少Dll文件，大家可下载微软VC++运行库，或者在我提供的网盘下载](https://www.123pan.com/s/8fFAjv-YK2R.html)
 
 [快柠檬VPN下载地址，绑定邀请码送7天:PTIJDNS ](https://flm12.com)
 
