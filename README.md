@@ -6,6 +6,7 @@
 
 [快柠檬VPN下载地址，绑定邀请码送7天:PTIJDNS ](https://flm12.com)
 
+![avatar](https://telegra.ph/file/5955ecb2f4a534e328ff5.png)
 
 **支持油脸博士一下吧，支付宝扫码每天可以领一次红包**
 
