@@ -8,9 +8,14 @@
 
 ![avatar](https://telegra.ph/file/5955ecb2f4a534e328ff5.png)
 
+1111vpn **Zero Trust**，永久免费无限流量，这是本人自己创建的团队，下载安装1111vpn，打开软件找到“账户”加入组织:_lovpn_ ，跳转登录你的Gmaill账户即可成为**Zero Trust**，
+
+![avatar](https://telegra.ph/file/8d3184b149c40175bd3b0.jpg)
+
 **支持油脸博士一下吧，支付宝扫码每天可以领一次红包**
 
 ![avatar](https://telegra.ph/file/2ff5d5da7a06f8fffc663.png)
+
 
 
 
