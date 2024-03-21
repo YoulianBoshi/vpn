@@ -1,12 +1,10 @@
 **如果觉得满意请在右上角点击“Star”给个星★😂
 
-[快柠檬PC一键破解补丁1.0，无限重置ID，补丁放安装目录运行，解压密码：youlianboshi](https://www.lanzoul.com/iFRNp1in9w3c)
-
-[快柠檬破解补丁提示缺少Dll文件，大家可下载微软VC++运行库，或者在我提供的网盘下载](https://www.123pan.com/s/8fFAjv-YK2R.html)
-
 [快柠檬VPN下载地址，绑定邀请码送7天:PTIJDNS ](https://flm12.com)
 
 ![avatar](https://telegra.ph/file/5955ecb2f4a534e328ff5.png)
+
+[App Cloner高级破解版是一款独立真实环境的无限克隆多开软件，支持修改手机设备ID参数，针对某款VPN无限白嫖试用，支持兼容安卓13](https://ylbs.lanzoul.com/iRz3N1s48vzi)
 
 1111vpn **Zero Trust**，永久免费无限流量，这是本人自己创建的团队，下载安装1111vpn，打开软件找到“账户”加入组织:_lovpn_ ，跳转登录你的Gmaill账户即可成为**Zero Trust**，
 
