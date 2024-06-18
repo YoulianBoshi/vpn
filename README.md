@@ -10,13 +10,6 @@
 
 ![avatar](https://telegra.ph/file/8d3184b149c40175bd3b0.jpg)
 
-**支持油脸博士一下吧，支付宝扫码每天可以领一次红包**
-
-![avatar](https://telegra.ph/file/2ff5d5da7a06f8fffc663.png)
-
-
-
-
 <details><summary>更新节点，来源网络收集</summary>
 <p>
 
