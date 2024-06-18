@@ -1,5 +1,7 @@
 **如果觉得满意请在右上角点击“Star”给个星★😂
 
+**解压密码**：youlianboshi
+
 [2024/6月18日新增电脑破解VPN，小众VPN 4k勉强流畅，不排除人多变拉跨，主要是双端加密，适合看岛国片😂😂😂](https://ylbs.lanzoul.com/iTWBF225hcsh)
 
 [快柠檬VPN下载地址，绑定邀请码送7天:PTIJDNS ](https://flm12.com)
