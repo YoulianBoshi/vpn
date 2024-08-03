@@ -2,9 +2,10 @@
 
 **解压密码**：youlianboshi    [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://ylbs.lanzoul.com/iARSM265nfeb)
 
-**蓝灯最新破解版无限重置高速流量破解补丁通用版**，[蓝灯官方下载地址>>](https://github.com/getlantern/download),[蓝灯破解补丁下载地址>>](https://ylbs.lanzoul.com/ict7r265nz2j)
+**蓝灯无限重置2G高速流量破解补丁通用版，4k流畅无压力**，[蓝灯官方下载地址>>](https://github.com/getlantern/download),[蓝灯破解补丁下载地址>>](https://ylbs.lanzoul.com/iGU9826ct4va
+)
 
-![avatar](https://telegra.ph/file/e6eed4d171fc961449e2f.png)
+![avatar](https://telegra.ph/file/c58a47369d00cdb54a55c.png)
 
 [2024/6月18日新增电脑破解VPN，小众VPN 4k勉强流畅，不排除人多变拉跨，双端加密，破解文件目录C:\Users\%UserName%\AppData\Local\Apps\2.0\Data\，详细看文件教程](https://ylbs.lanzoul.com/iTWBF225hcsh)
 
