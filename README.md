@@ -2,7 +2,7 @@
 
 **解压密码**：youlianboshi    [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://ylbs.lanzoul.com/iARSM265nfeb)
 
-**蓝灯无限重置2G高速流量破解补丁通用版，4k流畅无压力**，[蓝灯官方下载地址>>](https://github.com/getlantern),[蓝灯破解补丁下载地址>>](https://ylbs.lanzoul.com/iGU9826ct4va
+**蓝灯无限重置2G高速流量破解补丁通用版，4k流畅无压力**，[蓝灯官方下载地址>>](https://github.com/getlantern),[蓝灯破解补丁下载地址>>](https://ylbs.lanzoul.com/iGU9826ct4va)
 
 
 ![avatar](https://telegra.ph/file/c58a47369d00cdb54a55c.png)
