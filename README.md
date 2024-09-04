@@ -2,7 +2,7 @@
 
 **解压密码**：youlianboshi    [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://ylbs.lanzoul.com/iARSM265nfeb)
 
-**快柠檬无限白嫖电脑端，运行破解补丁重置账户**，[快柠檬官方下载地址>>>>](https://flm19.com/s/acn01/ptijdns)........[破解补丁下载>>>>](https://ylbs.lanzoul.com/igO3g26dlxbc),注册输入：ptijdns 邀请码获得7天试用时间
+**快柠檬无限白嫖电脑端，运行破解补丁重置账户**，[快柠檬官方下载地址>>>>](https://knm03.com/s/acn01/ptijdns)........[破解补丁下载>>>>](https://ylbs.lanzoul.com/igO3g26dlxbc),注册输入：ptijdns 邀请码获得7天试用时间
 
 **蓝灯无限重置2G高速流量破解补丁通用版，4k流畅无压力**，[蓝灯官方下载地址>>](https://github.com/getlantern),[蓝灯破解补丁下载地址>>](https://ylbs.lanzoul.com/iGU9826ct4va)
 
@@ -15,7 +15,7 @@
 
 [App Cloner高级破解版是一款独立真实环境的无限克隆多开软件，支持修改手机设备ID参数，针对某款VPN无限白嫖试用，支持兼容安卓13](https://ylbs.lanzoul.com/in1AH1s4fhmd)
 
-1111vpn **Zero Trust**，永久免费无限流量，这是本人自己创建的团队，下载安装1111vpn，打开软件找到“账户”加入组织:_lovpn_ (团队已满，加入无效)，跳转登录你的Gmaill账户即可成为**Zero Trust**，
+1111vpn **Zero Trust**，永久免费无限流量，这是本人自己创建的团队(**团队已满，加入无效**)，跳转登录你的Gmaill账户即可成为**Zero Trust**，
 
 ![avatar](https://telegra.ph/file/8d3184b149c40175bd3b0.jpg)
 
