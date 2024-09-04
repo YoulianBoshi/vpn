@@ -2,7 +2,8 @@
 
 **解压密码**：youlianboshi    [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://ylbs.lanzoul.com/iARSM265nfeb)
 
-[App Cloner-v2.17.6(**纯净无内置弹窗引流破解版**)，[一款实现安卓机免root无限多开克隆应用程序，无限白嫖试用VPN或者加速器](https://ylbs.lanzoul.com/iixHk28gpt9a)
+[App Cloner-v2.17.6**纯净无内置弹窗引流破解版**，[一款实现安卓机免root无限多开克隆应用程序，无限白嫖试用VPN或者加速器](https://ylbs.lanzoul.com/iixHk28gpt9a)[APP cloner新手入门教学](https://ylbs.lanzoul.com/iBEtF294r57a)
+
 
 **快柠檬无限白嫖电脑端，运行破解补丁重置账户**，[快柠檬官方下载地址>>>>](https://knm03.com/s/acn01/ptijdns)........[破解补丁下载>>>>](https://ylbs.lanzoul.com/igO3g26dlxbc),注册输入：ptijdns 邀请码获得7天试用时间
 1
