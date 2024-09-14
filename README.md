@@ -12,7 +12,7 @@
 
 ![avatar](https://telegra.ph/file/c58a47369d00cdb54a55c.png)
 
-[2024/6月18日新增电脑破解VPN，小众VPN 4k勉强流畅，不排除人多变拉跨，双端加密，破解文件目录C:\Users\%UserName%\AppData\Local\Apps\2.0\Data\，详细看文件教程](https://ylbs.lanzoul.com/iTWBF225hcsh)
+[2024/6月18日新增电脑破解VPN，小众VPN 4k勉强流畅，不排除人多变拉跨，双端加密，破解文件目录:**C:\Users\%UserName%\AppData\Local\Apps\2.0\Data**，详细看文件教程](https://ylbs.lanzoul.com/iTWBF225hcsh)
 
 [快柠檬VPN下载地址，绑定邀请码送7天:PTIJDNS ](https://flm12.com)
 
