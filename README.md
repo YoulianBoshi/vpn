@@ -22,10 +22,12 @@ ptijdns
 
 
 
-[2024/6月18日新增电脑破解VPN，小众VPN 4k勉强流畅，不排除人多变拉跨，双端加密， 详细看视频教程](https://ylbs.lanzoul.com/iTWBF225hcsh)
+[2024/6月18日新增电脑破解VPN，小众VPN 4k勉强流畅，不排除人多变拉跨，双端加密](https://ylbs.lanzoul.com/iTWBF225hcsh)
+
+**破解文件目录，详细看视频教程**
 
 ```
-破解文件目录: C:\Users\%UserName%\AppData\Local\Apps\2.0\Data
+C:\Users\%UserName%\AppData\Local\Apps\2.0\Data
 ```
 
 
