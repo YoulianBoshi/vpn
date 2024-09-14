@@ -13,14 +13,12 @@ youlianboshi
 
 [破解补丁下载>>>>](https://ylbs.lanzoul.com/igO3g26dlxbc)
 
-**注册输入邀请码**：
+**注册输入邀请码白嫖7天**：
 
 
 ```
 
 ptijdns
-
-获得7天使用时间
 
 ```
 
