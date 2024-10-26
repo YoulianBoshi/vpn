@@ -1,4 +1,4 @@
-**如果觉得满意请在右上角点击“Star”给个星★😂**
+**本项目长期更新，建议点击右上角“Star”给个星★收藏不迷路😂**
 
 [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://ylbs.lanzoul.com/iARSM265nfeb)
 
@@ -9,7 +9,7 @@ youlianboshi
 ```
 
 
-**快柠檬无限白嫖电脑端，运行破解补丁重置账户**，[快柠檬官方网址>>>>](https://knm03.com/s/acn01/ptijdns)，[破解补丁下载>>>>](https://ylbs.lanzoul.com/igO3g26dlxbc)
+**快柠檬一键破解补丁无限刷重置10G高速流量**，[快柠檬官方网址>>>>](https://knm03.com/s/acn01/ptijdns)，[破解补丁下载>>>>](https://ylbs.lanzoul.com/igO3g26dlxbc)
 
 **注册输入邀请码白嫖7天**：
 
@@ -18,9 +18,9 @@ ptijdns
 ```
 
 
-[2024/6月18日新增电脑破解VPN，小众VPN 4k勉强流畅，不排除人多变拉跨，双端加密](https://ylbs.lanzoul.com/iTWBF225hcsh)
+[2024/6月18日新增电脑破解VPN，4k流畅，双端加密，修改代码无限白嫖5天时间](https://ylbs.lanzoul.com/iTWBF225hcsh)
 
-**破解文件目录，详细看视频教程**
+**破解文件目录，修改代码详细看视频教程**
 
 ```
 C:\Users\%UserName%\AppData\Local\Apps\2.0\Data
