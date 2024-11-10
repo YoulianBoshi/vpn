@@ -17,7 +17,7 @@ youlianboshi
 ptijdns
 ```
 
-[推荐★长期白嫖]2024/6月18日新增电脑破解VPN，4k流畅，双端加密，修改代码无限白嫖5天时间](https://ylbs.lanzoul.com/iTWBF225hcsh)
+[[推荐★长期白嫖]2024/6月18日新增电脑破解VPN，4k流畅，双端加密，修改代码无限白嫖5天时间](https://ylbs.lanzoul.com/iTWBF225hcsh)
 
 **破解文件目录，修改代码详细看视频教程**
 
