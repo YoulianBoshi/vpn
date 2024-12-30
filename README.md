@@ -8,7 +8,7 @@
 youlianboshi
 ```
 
-即将发布新的破解VPN，38M/s，解锁全网流媒体，超多国家海外路线，我先用十来天半个月，记得点击star收藏不迷路
+即将发布新的破解VPN，38M/s，解锁全网流媒体，超多国家海外路线，记得点击star收藏不迷路
 
 ![avatar](https://hv.z.wiki/autoupload/20241230/AHIS/1080X1843/Screenshot-2024-12-30-11-47-23-765-us.velolink.radiam-edit.jpg)
 
