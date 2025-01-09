@@ -8,7 +8,8 @@
 youlianboshi
 ```
 
-即将发布新的破解VPN，38M/s，解锁全网流媒体，超多国家海外路线，记得点击star收藏不迷路
+[新破解VPN，38M/s@gmail.com后缀名邮箱注册，解锁全网流媒体，超多国家海外路线，同一电脑无法多次注册账号，试用完运行破解补丁即可重新注册(https://ylbs.lanzoul.com/igmCj2jee9qf
+2)
 
 ![avatar](https://hv.z.wiki/autoupload/20241230/AHIS/1080X1843/Screenshot-2024-12-30-11-47-23-765-us.velolink.radiam-edit.jpg)
 
