@@ -8,7 +8,7 @@
 youlianboshi
 ```
 
-[新破解VPN，38M/，以@gmail.com后缀名邮箱注册即可，解锁全网流媒体，超多国家海外路线，试用到期运行破解补丁即可重新注册](https://ylbs.lanzoul.com/igmCj2jee9qf)
+[新破解VPN，38M/s，以@gmail.com后缀名邮箱注册即可，解锁全网流媒体，超多国家海外路线，试用到期运行破解补丁即可重新注册](https://ylbs.lanzoul.com/igmCj2jee9qf)
 
 ![avatar](https://hv.z.wiki/autoupload/20241230/AHIS/1080X1843/Screenshot-2024-12-30-11-47-23-765-us.velolink.radiam-edit.jpg)
 
