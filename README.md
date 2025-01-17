@@ -1,5 +1,9 @@
 **本项目长期更新，建议点击右上角“Star”给个星★收藏不迷路😂**
 
+[某拼夕夕平台贩卖的酷🐶音乐概念版，永久免费VIP，油脸博士免费制作分享给大家，新旧手机号登录即可领取每日VIP，畅享所有VIP特权，禁止贩卖](https://ylbs.lanzoul.com/ihZ4W2l60h0h)
+
+![](https://img.erpweb.eu.org/imgs/2025/01/205b09101a71e919.jpg)
+
 [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://ylbs.lanzoul.com/iARSM265nfeb)
 
 **压缩包解压统一密码**
