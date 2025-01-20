@@ -34,6 +34,8 @@ C:\Users\%UserName%\AppData\Local\Apps\2.0\Data
 <p>
 
 #### 点击一下即可全部复制
+
+```
 ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTowYTcwNjcyYS05ZTAwLTRjZTctOTVmZi1lZGY4MThlZGE1ZGI@hk.fastsoonlink.com:40000#%E9%A6%99%E6%B8%AF
 ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTowYTcwNjcyYS05ZTAwLTRjZTctOTVmZi1lZGY4MThlZGE1ZGI@us.fastsoonlink.com:40001#%E7%BE%8E%E5%9B%BD
 ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTowYTcwNjcyYS05ZTAwLTRjZTctOTVmZi1lZGY4MThlZGE1ZGI@jp.fastsoonlink.com:40003#%E6%97%A5%E6%9C%AC
@@ -49,3 +51,4 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTowYTcwNjcyYS05ZTAwLTRjZTctOTVmZi1lZGY4MThlZGE
 ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTowYTcwNjcyYS05ZTAwLTRjZTctOTVmZi1lZGY4MThlZGE1ZGI@kr.fastsoonlink.com:40032#%E9%9F%A9%E5%9B%BD
 ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTowYTcwNjcyYS05ZTAwLTRjZTctOTVmZi1lZGY4MThlZGE1ZGI@idn.fastsoonlink.com:40033#%E5%8D%B0%E5%BA%A6%E5%B0%BC%E8%A5%BF%E4%BA%9A
 ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTowYTcwNjcyYS05ZTAwLTRjZTctOTVmZi1lZGY4MThlZGE1ZGI@fr.fastsoonlink.com:40034#%E6%B3%95%E5%9B%BD
+```
