@@ -23,7 +23,7 @@ deepseekvpn
 
 [[重点推荐★长期稳定白嫖]新破解VPN，38M/s，以@gmail.com后缀名邮箱注册即可，解锁全网流媒体，超多国家海外路线，试用到期运行破解补丁即可重新注册](https://ylbs.lanzoul.com/igmCj2jee9qf)
 
-[[重点推荐★长期稳定白嫖]快柠檬一键破解补丁无限重置10G高速流量，快柠檬官方网址>>>>](https://knm03.com/s/acn01/ptijdns)，[破解补丁下载>>>>](https://ylbs.lanzoul.com/igO3g26dlxbc)
+[[重点推荐★长期稳定白嫖]快柠檬一键破解补丁无限重置10G高速流量，快柠檬官方网址>>>>](https://ekowk.com/s/acn11)，[破解补丁下载>>>>](https://ylbs.lanzoul.com/igO3g26dlxbc)
 
 **注册输入邀请码白嫖7天**：
 
