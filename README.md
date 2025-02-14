@@ -15,7 +15,7 @@ https://ylbs.lanzoul.com/iN85a2ns3y7i)
 
 2025/2/14[某套壳机场加速器一键破解，加速器下载地址](https://mofangcloud.shop/)，[破解补丁下载地址](https://ylbs.lanzoul.com/iTndl2nr231e)
 
-**1.1.1.1VPN加入油脸博士Zero Trust团队，限额50名，下载1111vpn客户端，账户栏填写团队名称，输入您的@gmail.com邮箱登录验证即可，永久免费无限流量**
+[1.1.1.1VPN加入油脸博士Zero Trust团队，限额50名，下载1111vpn客户端，账户栏填写团队名称，输入您的@gmail.com邮箱登录验证即可，永久免费无限流量](https://ylbs.lanzoul.com/iedIG2ntjixa)
 
 **Zero Trust团队名称**
 ```
