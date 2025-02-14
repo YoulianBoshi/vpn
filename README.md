@@ -8,7 +8,7 @@
 youlianboshi
 ```
 
-~~[已失效，开发者注意到github项目了，SoonVPN一键破解补丁发布，由于软件有保护无法对其注入破解模块，因此借用其它工具加内嵌脚本实现无限白嫖，详细看视频教程](https://ylbs.lanzoul.com/iw1iG2n7uhni)~~
+2025/2/14[某套壳机场加速器一键破解，加速器下载地址](https://mofangcloud.shop/)，[破解补丁下载地址](https://ylbs.lanzoul.com/iTndl2nr231e)
 
 **1.1.1.1VPN加入油脸博士Zero Trust团队，限额50名，下载1111vpn客户端，账户栏填写团队名称，输入您的@gmail.com邮箱登录验证即可，永久免费无限流量**
 
