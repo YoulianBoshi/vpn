@@ -8,6 +8,8 @@
 youlianboshi
 ```
 
+[破解补丁升级至2.0，修复和谐，无限重置ID，欢迎大家使用](https://ylbs.lanzoul.com/iHj0C2nu2hte)
+
 [某套壳机场自带免流节点(貌似连不上)，有多个国家节点，解锁ChatGPT，流媒体等，下载网速15M/s，随便填写账号无验证，同一ip多次白嫖会显示“限速套餐”，说明ip已被拉黑，解决方法是把光纤路由器拔插网线重新分配ip，如果是手机热点开启飞行模式5秒后关闭即可获得新ip分配](https://ylbs.lanzoul.com/iedIG2ntjixa)
 
 [一键破解套壳机场，无限重置白嫖7天，随便注册账号无需验证，VPN失效在Issues处反馈](
