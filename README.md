@@ -7,6 +7,9 @@
 ```
 youlianboshi
 ```
+
+[破解VPN，每次运行破解补丁获得500M流量，无限白嫖](https://ylbs.lanzoul.com/iXTOp2pit6hi)
+
 [2025/3/6新破解VPN，每次运行破解补丁获得1天试用时间，用之前记得退出电脑保护软件，否则修改不生效，网速快，支持全局模式和智能模式](https://ylbs.lanzoul.com/idW0y2poknsd)
 
 [破解补丁升级至2.0，修复和谐，无限重置ID，4k流畅，超多国家节点，解锁流媒体，欢迎大家使用，此VPN检测电脑开机时间，如破解不生效，等待电脑开机一段时间再打开或者去官网注册账号登录软件即可](https://ylbs.lanzoul.com/iHj0C2nu2hte)
