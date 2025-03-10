@@ -8,6 +8,8 @@
 youlianboshi
 ```
 
+[2025/3/10运行破解补丁无限白嫖1TB流量，用临时邮箱注册即可，游客身份登录破解无效](https://ylbs.lanzoul.com/izveP2q6lk7i)
+
 [破解VPN，每次运行破解补丁获得500M流量，无限白嫖](https://ylbs.lanzoul.com/iXTOp2pit6hi)
 
 [2025/3/6新破解VPN，每次运行破解补丁获得1天试用时间，用之前记得退出电脑保护软件，否则修改不生效，网速快，支持全局模式和智能模式](https://ylbs.lanzoul.com/idW0y2poknsd)
