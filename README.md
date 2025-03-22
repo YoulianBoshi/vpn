@@ -2,7 +2,7 @@
 
 [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://www.lanzoul.com/iARSM265nfeb)
 
-**压缩包解压统一密码**
+**压缩包解压同一密码**
 
 ```
 youlianboshi
