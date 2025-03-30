@@ -8,13 +8,11 @@
 youlianboshi
 ```
 
-[2025/3/10运行破解补丁无限白嫖1TB流量，用临时邮箱注册即可，游客身份登录破解无效](https://ylbs.lanzoul.com/izveP2q6lk7i)
+[2025/3/10运行破解补丁无限白嫖1TB流量，用临时邮箱注册即可，运行一次破解补丁需要重新注册一个账号，游客身份登录破解无效](https://ylbs.lanzoul.com/izveP2q6lk7i)
 
 [破解VPN，每次运行破解补丁获得500M流量，无限白嫖](https://ylbs.lanzoul.com/iXTOp2pit6hi)
 
-[2025/3/6新破解VPN，每次运行破解补丁获得1天试用时间，用之前记得退出电脑保护软件，否则修改不生效，网速快，支持全局模式和智能模式](https://ylbs.lanzoul.com/idW0y2poknsd)
-
-[开发者不让破解，自己去官网注册账号登录软件替换账户](https://ylbs.lanzoul.com/iHj0C2nu2hte)
+[开发者不让破解，软件检测电脑开机时间，需要开机到一定时长，软件才可以白嫖](https://ylbs.lanzoul.com/iHj0C2nu2hte)
 
 [某套壳机场自带免流节点(貌似连不上)，有多个国家节点，解锁ChatGPT，流媒体等，下载网速15M/s，随便填写账号无验证，同一ip多次白嫖会显示“限速套餐”，说明ip已被拉黑，解决方法是把光纤路由器拔插网线重新分配ip，如果是手机热点开启飞行模式5秒后关闭即可获得新ip分配](https://ylbs.lanzoul.com/iedIG2ntjixa)
 
