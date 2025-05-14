@@ -8,7 +8,7 @@
 youlianboshi
 ```
 
-[2025/5/14破解VPN，免注册无限重置ID，网速快，延迟低，覆盖长多国家节点](https://ylbs.lanzoul.com/iAaIx2w6zusj
+[2025/5/14，免注册无限重置ID，游客登录无限白嫖2G，网速快，延迟低，覆盖多国家节点](https://ylbs.lanzoul.com/iAaIx2w6zusj
 )
 
 ![](https://cdn.z.wiki/autoupload/20250514/wiZp/1653X1188/IMG-20250514-175452.png)
