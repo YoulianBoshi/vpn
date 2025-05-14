@@ -8,6 +8,9 @@
 youlianboshi
 ```
 
+[2025/5/14破解VPN，免注册无限重置ID，网速快，延迟低，覆盖长多国家节点](https://ylbs.lanzoul.com/iAaIx2w6zusj
+)
+
 [2025/3/10运行破解补丁无限白嫖1TB流量，用临时邮箱注册即可，运行一次破解补丁需要重新注册一个账号，游客身份登录破解无效](https://ylbs.lanzoul.com/izveP2q6lk7i)
 
 [破解VPN，每次运行破解补丁获得500M流量，无限白嫖](https://ylbs.lanzoul.com/iXTOp2pit6hi)
