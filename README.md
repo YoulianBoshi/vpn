@@ -8,9 +8,9 @@
 youlianboshi
 ```
 
-[2025/8/20无限重置ID，4K高速解锁流媒体，运行破解工具不蓝屏](https://ylbs.lanzoul.com/ikcfi2zexmpc)
+[2025/9/20无限重置ID，4K高速解锁流媒体，运行破解工具不蓝屏，该软件会检测ExE包安装时间，若不是最新时间将无法获得试用，每破解一次需要在官网下载一次重新安装覆盖时间](https://ylbs.lanzou.com/ikcfi2zexmpc)
 
-[2025/8/20无限白嫖VPN，网速快，延迟低，解锁流媒体，覆盖多国家节点](https://ylbs.lanzoul.com/ifLCY33zhsmj)
+[2025/9/20无限白嫖VPN，网速快，延迟低，解锁流媒体，覆盖多国家节点](https://ylbs.lanzoul.com/iBEDT36lo81e)
 
 ![](https://cdn.z.wiki/autoupload/20250514/wiZp/1653X1188/IMG-20250514-175452.png)
 
