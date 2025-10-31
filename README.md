@@ -8,6 +8,10 @@
 youlianboshi
 ```
 
+[2025/10/31新增一款加速器，无限重置十分钟50G高速流量，解锁流媒体，多个国家节点](https://www.lanzoul.com/iU5bd39r421c)
+
+![](https://img.erpweb.eu.org/imgs/2025/10/8b7e873e2f2ba2f5.png)
+
 **2025/10/31，此VPN恢复正常，如果不能白嫖，尝试更新客户端，更换本地网络IP**[下载地址>>>>>>](https://www.lanzoul.com/iBEDT36lo81e)
 
 **2050/10/31，此VPN已恢复使用，如果不能白嫖，尝试更新客户端，更换本地网络IP**[下载地址<<<<<>>>>>](https://www.lanzoul.com/iZ2Am36ltgfg)
