@@ -7,6 +7,11 @@
 ```
 youlianboshi
 ```
+
+**2025/10/31，此VPN恢复正常，如果不能白嫖，尝试更新客户端，更换本地网络IP**[下载地址>>>>>>](https://www.lanzoul.com/iBEDT36lo81e)
+
+**2050/10/31，此VPN已恢复使用，如果不能白嫖，尝试更新客户端，更换本地网络IP**[下载地址<<<<<>>>>>](https://www.lanzoul.com/iZ2Am36ltgfg)
+
 **2025/10/18，无限白嫖7天时间，多个国家节点，无需注册**，[《《下载地址》》](https://www.lanzoux.com/i7b0j38ra65a
 )
 
