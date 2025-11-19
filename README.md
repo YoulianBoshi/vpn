@@ -8,6 +8,10 @@
 youlianboshi
 ```
 
+[2025/11/19新增一款加速器，无限重置ID，邀请码+绑定邮箱白嫖6天VIP，多个国家节点，高速无限流量](https://www.lanzoup.com/iBOJ73bk7bmf)
+
+![](https://img.erpweb.eu.org/imgs/2025/11/8f3f6ebb3a5ce24f.jpg)
+
 [2025/10/31新增一款加速器，无限重置十分钟50G高速流量，解锁流媒体，多个国家节点](https://www.lanzoul.com/iU5bd39r421c)
 
 ![](https://img.erpweb.eu.org/imgs/2025/10/8b7e873e2f2ba2f5.png)
