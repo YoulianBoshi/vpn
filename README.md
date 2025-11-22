@@ -12,7 +12,7 @@ youlianboshi
 
 ![](https://img.erpweb.eu.org/imgs/2025/11/c936f40b39381ac3.jpg)
 
-[2025/11/19新增一款加速器，无限重置ID，邀请码+绑定邮箱白嫖6天VIP，多个国家节点，高速无限流量](https://www.lanzoup.com/iBOJ73bk7bmf)
+[2025/11/19新增一款加速器，无限重置ID，邀请码+绑定邮箱白嫖6天VIP，多个国家节点，高速无限流量，白嫖的账号可以登陆手机电脑等其它终端使用，试用到期退出账号登陆新账号即可](https://www.lanzoup.com/iBOJ73bk7bmf)
 
 ![](https://img.erpweb.eu.org/imgs/2025/11/8f3f6ebb3a5ce24f.jpg)
 
