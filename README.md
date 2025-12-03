@@ -24,7 +24,9 @@ youlianboshi
 
 ![](https://img.erpweb.eu.org/imgs/2025/10/8b7e873e2f2ba2f5.png)
 
-<details><summary>更新节点，来源网络收集</summary>
+<details><summary>OpenVpn节点</summary>
 <p>
 
-#### 点击一下即可全部复制
+###搬运
+
+https://www.umavpn.top
