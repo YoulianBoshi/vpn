@@ -10,6 +10,10 @@
 youlianboshi
 ```
 
+[2025/12/3【【修复版】无限重置ID白嫖10G流量，免注册，支持流媒体，支持全局/规则代理模式，超多国家节点](https://ylbs.lanzoul.com/iOTiv3crh5je)
+
+![](https://img.erpweb.eu.org/imgs/2025/12/22f2ec4ec165797c.jpg)
+
 [2025/12/2安卓手机破解火种VPN方法，可无限白嫖](https://www.lanzoul.com/i94FT3cp43pi)
 
 [2025/12/2这款加速器可厉害了，邀请码+邮箱白嫖6天VIP，无限重置ID，点击手速快还可领更多时间，邀请码已更新](https://www.lanzoul.com/iSlL23cozr9g)
@@ -19,23 +23,6 @@ youlianboshi
 [2025/10/31新增一款加速器，无限重置十分钟50G高速流量，解锁流媒体，多个国家节点](https://www.lanzoul.com/iU5bd39r421c)
 
 ![](https://img.erpweb.eu.org/imgs/2025/10/8b7e873e2f2ba2f5.png)
-
-**2025/10/31，此VPN恢复正常，如果不能白嫖，尝试更新客户端，更换本地网络IP**[下载地址>>>>>>](https://www.lanzoul.com/iBEDT36lo81e)
-
-**2050/10/31，此VPN已恢复使用，如果不能白嫖，尝试更新客户端，更换本地网络IP**[下载地址<<<<<>>>>>](https://www.lanzoul.com/iZ2Am36ltgfg)
-
-**2025/10/18，无限白嫖7天时间，多个国家节点，无需注册**，[《《下载地址》》](https://www.lanzoux.com/i7b0j38ra65a
-)
-
-![](https://img.erpweb.eu.org/imgs/2025/10/96723116c102835c.png)
-
-[[推荐★长期稳定白嫖]2025/10月18日新增电脑破解VPN，4k流畅，双端加密，修改代码无限白嫖5天时间，修改串码通杀所有版本，版本太旧自己去下载新的版本](https://www.lanzoul.com/iTWBF225hcsh)
-
-**破解文件目录，随机修改一串数字+英文字母即可重置白嫖时间，详细看视频教程**
-
-```
-C:\Users\%UserName%\AppData\Local\Apps\2.0\Data
-```
 
 <details><summary>更新节点，来源网络收集</summary>
 <p>
