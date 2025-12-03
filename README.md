@@ -27,6 +27,6 @@ youlianboshi
 <details><summary>OpenVpn节点</summary>
 <p>
 
-###搬运
+#经测试，真实有效，节点存活时长看运气
 
 https://www.umavpn.top
