@@ -10,7 +10,7 @@
 youlianboshi
 ```
 
-[2025/12/3【【修复版】无限重置ID白嫖10G流量，免注册，支持流媒体，支持全局/规则代理模式，超多国家节点](https://ylbs.lanzoul.com/iOTiv3crh5je)
+[2025/12/3【修复版】无限重置ID白嫖10G流量，免注册，支持流媒体，支持全局/规则代理模式，超多国家节点](https://ylbs.lanzoul.com/iOTiv3crh5je)
 
 ![](https://img.erpweb.eu.org/imgs/2025/12/22f2ec4ec165797c.jpg)
 
