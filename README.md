@@ -1,4 +1,4 @@
-**本项目长期更新，建议点击右上角“Star”给个星★收藏不迷路😂** [欢迎加入Telegram测试群抢先体验新VPN](https://t.me/+eAilCY_rZE1hYWYx)
+**本项目长期更新，建议点击右上角“Star”给个星★收藏不迷路😂** [欢迎加入Telegram测试群抢先体验新VPN](https://t.me/+CnFyEGIzA8M0OTFh)
 
 **破解工具已被微软安全中心强制查杀，建议安装Windows11(22H2)或更旧的版本**
 
