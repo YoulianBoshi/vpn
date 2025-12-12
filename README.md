@@ -1,7 +1,5 @@
 **本项目长期更新，建议点击右上角“Star”给个星★收藏不迷路😂** [油脸博士Telegram测试群](https://t.me/+CnFyEGIzA8M0OTFh)
 
-**破解工具已被微软安全中心强制查杀，建议安装Windows11(≤22H2)版本**
-
 [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://www.lanzoul.com/iARSM265nfeb)
 
 **压缩包解压同一密码**
