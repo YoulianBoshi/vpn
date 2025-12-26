@@ -1,4 +1,4 @@
-**本项目长期更新，建议点击右上角“Star”给个星★收藏不迷路😂** [油脸博士Telegram测试群](https://t.me/+CnFyEGIzA8M0OTFh)
+**本项目长期更新，避免高封锁期失联，建议点击右上角“Star”给个星★收藏不迷路😂** [油脸博士Telegram测试群](https://t.me/+CnFyEGIzA8M0OTFh)
 
 [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://www.lanzoul.com/iARSM265nfeb)
 
