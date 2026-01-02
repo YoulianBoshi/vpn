@@ -8,7 +8,7 @@
 youlianboshi
 ```
 
-[2025/12/26【长期稳定白嫖】优化破解工具，无限重置ID白嫖6天vip，无需修改机器码，仅需运行破解工具即可](https://ylbs.lanzoul.com/ib1K33cw84je)
+[2025/12/26【长期稳定白嫖】优化破解工具，无限重置ID邀请码+绑定邮箱白嫖6天vip，无需修改机器码，仅需运行破解工具即可](https://ylbs.lanzoul.com/ib1K33cw84je)
 
 ![](https://img.erpweb.eu.org/imgs/2025/11/8f3f6ebb3a5ce24f.jpg)
 
