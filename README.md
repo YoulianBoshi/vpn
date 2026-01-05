@@ -14,6 +14,10 @@ youlianboshi
 
 [2026/1/3安卓手机破解火种VPN方法，可无限白嫖，解压密码youlianboshi](https://www.lanzoul.com/i94FT3cp43pi)
 
+[2026/1/5超过一百个稳定高速可用节点，无限重置ID，注册无需验证，可无限白嫖](https://t.me/vpn_patch/5)
+
+![](https://img.erpweb.eu.org/imgs/2026/01/6c4494e1cfc4eb62.png)
+
 [2026/1/23韩国家宽openvpn，注册时清除浏览器缓存，无限注册3天无限流量，网速杠杠的](https://t.me/vpn_patch/633)
 
 ![](https://img.erpweb.eu.org/imgs/2025/12/7157818fd9f4d8de.jpg)
