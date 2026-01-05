@@ -22,7 +22,7 @@ youlianboshi
 
 ![](https://img.erpweb.eu.org/imgs/2025/12/7157818fd9f4d8de.jpg)
 
-[2025/12/3【长期稳定白嫖】无限重置ID白嫖100G流量，单文件内置破解补丁，退出重启软件即重置100G流量](https://ylbs.lanzoul.com/isez73dxgv6d)
+[2025/12/3【长期稳定白嫖】无限重置ID白嫖100G流量，单文件内置破解补丁，退出重启软件即重置100G流量](https://t.me/vpn_patch/714)
 
 ![](https://img.erpweb.eu.org/imgs/2025/12/0fe4e32141520348.png)
 
