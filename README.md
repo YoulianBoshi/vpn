@@ -12,6 +12,10 @@ youlianboshi
 
 ![](https://img.erpweb.eu.org/imgs/2025/11/8f3f6ebb3a5ce24f.jpg)
 
+[2026/1/11无限白嫖VPN，破解一次7天时间，速度稳定](https://t.me/vpn_patch/1440)
+
+![](https://img.erpweb.eu.org/imgs/2026/01/42523f98a7a9c74d.jpg)
+
 [2026/1/10超过一百个稳定高速可用节点，无限重置ID，注册无需验证，可无限白嫖](https://t.me/vpn_patch/5)
 
 ![](https://img.erpweb.eu.org/imgs/2026/01/6c4494e1cfc4eb62.png)
