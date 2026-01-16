@@ -12,7 +12,7 @@ youlianboshi
 
 ![](https://img.erpweb.eu.org/imgs/2026/01/42523f98a7a9c74d.jpg)
 
-~~[2026/1/13火种VPN疑似存在后台挖矿，不再建议使用](https://www.lanzoup.com/ixC5d3g02upc)~~
+~~[2026/1/13火种VPN疑似存在后台挖矿行为，不再建议使用](https://www.lanzoup.com/ixC5d3g02upc)~~
 
 ![](https://img.erpweb.eu.org/imgs/2025/11/8f3f6ebb3a5ce24f.jpg)
 
