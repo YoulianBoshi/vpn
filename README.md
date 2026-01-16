@@ -8,7 +8,7 @@
 youlianboshi
 ```
 
-[2026/1/16无限白嫖VPN，破解一次7天时间，速度稳定]([https://t.me/vpn_patch/1440](https://www.lanzoup.com/ice0l3g9mxcb))
+[2026/1/16无限白嫖VPN，破解一次7天时间，速度稳定](https://www.lanzoup.com/ice0l3g9mxcb)
 
 ![](https://img.erpweb.eu.org/imgs/2026/01/42523f98a7a9c74d.jpg)
 
