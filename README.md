@@ -8,13 +8,13 @@
 youlianboshi
 ```
 
-[2026/1/16无限白嫖VPN，破解一次7天时间，速度稳定](https://www.lanzoup.com/ice0l3g9mxcb)
-
-![](https://img.erpweb.eu.org/imgs/2026/01/42523f98a7a9c74d.jpg)
-
-~~[2026/1/13火种VPN疑似存在后台挖矿行为，不再建议使用](https://www.lanzoup.com/ixC5d3g02upc)~~
+[2026/1/22火种VPN无限白嫖6天VIP，绑定邮箱后登录客户端兑换60积分](https://deeplink.huozhong.xyz/applyPromo/1elwsxg)
 
 ![](https://img.erpweb.eu.org/imgs/2025/11/8f3f6ebb3a5ce24f.jpg)
+
+[2026/1/22无限白嫖VPN，破解一天时间，速度稳定](https://www.lanzoup.com/ice0l3g9mxcb)
+
+![](https://img.erpweb.eu.org/imgs/2026/01/42523f98a7a9c74d.jpg)
 
 [2026/1/10超过一百个稳定高速可用节点，无限重置ID，注册无需验证，可无限白嫖](https://t.me/vpn_patch/5)
 
