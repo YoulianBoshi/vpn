@@ -8,7 +8,7 @@
 youlianboshi
 ```
 
-[2026/1/22火种VPN无限白嫖6天VIP，绑定邮箱后登录客户端兑换60积分](https://deeplink.huozhong.xyz/applyPromo/1elwsxg)
+[2026/1/22火种VPN无限白嫖6天VIP，绑定邮箱+邀请码（邀请码：1elwsxg）获得60积分，登录客户端兑换VIP时长，多次注册最好清空浏览器缓存](https://deeplink.huozhong.xyz/applyPromo/1elwsxg)
 
 ![](https://img.erpweb.eu.org/imgs/2025/11/8f3f6ebb3a5ce24f.jpg)
 
