@@ -8,7 +8,7 @@
 youlianboshi
 ```
 
-[2026/1/30快连一键重置ID，无限白嫖一小时青铜会员，多次重置ID会提示版本太旧，电脑IP被标记，如果用的是宽带重启路由器，如果是手机WIFI热点则开启飞行模式](https://ylbs.lanzoul.com/icIHx3hcltyh)
+[2026/1/30快连一键重置ID，无限白嫖一小时青铜会员，多次重置ID会提示版本太旧，电脑IP被标记，如果用的是宽带重启路由器，如果是手机WIFI热点则开启飞行模式](https://www.lanzoul.com/icIHx3hcltyh)
 
 ![123.jpg](https://youke.xn--y7xa690gmna.cn/s1/2026/01/30/697c194c1387e.webp)
 
