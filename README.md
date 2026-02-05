@@ -39,3 +39,5 @@ youlianboshi
 #经测试，真实有效，节点存活时长看运气
 
 https://www.umavpn.top
+
+https://www.racevpn.com/
