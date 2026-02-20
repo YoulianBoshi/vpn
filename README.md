@@ -8,6 +8,10 @@
 youlianboshi
 ```
 
+[火种VPN稳定快速，邀请码+绑定临时邮箱兑换积分可无限白嫖6天VIP时间,邀请码：m2ahssw](https://deeplink.huozhong.xyz/applyPromo/m2ahssw)，注册失败清空浏览器缓存和换IP，用宽带重启路由器，用手机WiFi打开飞行莫模式60秒即可解决问题[点击进入后台注册接口](https://deeplink.huozhong.xyz/applyPromo/m2ahssw)
+
+![](https://img.erpweb.eu.org/imgs/2026/02/06b694057c8f89c9.jpg)
+
 [2026/2/17无限白嫖3天，临时邮箱注册激活，内置shandowsocks  Trojan  Vless 协议](https://ylbs.lanzoul.com/ikbIH3in4izc)
 
 ![](https://img.erpweb.eu.org/imgs/2026/02/6223bc4a232e75a3.jpg)
