@@ -1,4 +1,4 @@
-**本项目长期更新，避免高封锁期失联，建议点击右上角“Star”给个星★收藏不迷路😂** [进群组优先体验其它破解VPN](https://t.me/vpn_patch)
+**本项目长期更新，高封锁期永不失联，建议点击右上角“Star”给个星★收藏不迷路😂** [进群组优先体验其它破解VPN](https://t.me/vpn_patch)
 
 [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://www.lanzoul.com/iARSM265nfeb)
 
