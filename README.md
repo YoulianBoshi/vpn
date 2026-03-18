@@ -8,6 +8,10 @@
 youlianboshi
 ```
 
+[2026/3/18最新破解VPN，无限白嫖3天时间，注册即送300G流量，极速专线节点，支持解锁流媒体](https://t.me/vpn_patch/3032?single)
+
+![](https://img.erpweb.eu.org/imgs/2026/03/862d7d07b57e7c59.jpg)
+
 [2026/2/20火种VPN稳定快速，邀请码+绑定临时邮箱兑换积分可无限白嫖6天VIP时间,邀请码：m2ahssw](https://deeplink.huozhong.xyz/applyPromo/m2ahssw)，注册失败清空浏览器缓存和换IP，用宽带重启路由器，用手机WiFi打开飞行莫模式60秒即可解决问题[点击进入后台注册接口获取6天VPN试用](https://deeplink.huozhong.xyz/applyPromo/m2ahssw)
 
 ![](https://img.erpweb.eu.org/imgs/2026/02/06b694057c8f89c9.jpg)
