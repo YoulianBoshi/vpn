@@ -8,6 +8,10 @@
 youlianboshi
 ```
 
+[2026/3/21增加PureVPN，破解无限白嫖，解锁流媒体节点，超多国家节点，无限刷邀请增加VIP时间](https://t.me/vpn_patch/3067)
+
+<img width="850" height="625" alt="123" src="https://github.com/user-attachments/assets/5e35d8a2-1d1e-4a77-93e8-b6e0ba51c71d" />
+
 [2026/3/18最新破解VPN，无限白嫖3天时间，注册即送300G流量，极速专线节点，支持解锁流媒体](https://t.me/vpn_patch/3032?single)
 
 ![](https://img.erpweb.eu.org/imgs/2026/03/862d7d07b57e7c59.jpg)
