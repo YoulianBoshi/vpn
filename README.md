@@ -26,7 +26,7 @@ youlianboshi
 
 [2026/1/30快连一键重置ID，无限白嫖一小时青铜会员，多次重置ID会提示版本太旧，电脑IP被标记，如果用的是宽带重启路由器，如果是手机WIFI热点则开启飞行模式](https://www.lanzoul.com/icIHx3hcltyh)
 
-![123.jpg](https://youke.xn--y7xa690gmna.cn/s1/2026/01/30/697c194c1387e.webp)
+![1](https://github.com/user-attachments/assets/db4177c6-b60a-4e32-b398-f97ce2c075c0)
 
 [2026/1/10【长期稳定白嫖】新增一款加速器，无限重置十分钟50G高速流量，解锁流媒体，多个国家节点](https://www.lanzoul.com/iU5bd39r421c)
 
