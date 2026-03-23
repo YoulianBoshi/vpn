@@ -8,6 +8,11 @@
 youlianboshi
 ```
 
+[2026/3/23瞬连VPN一键破解补丁，无线白嫖10G告诉流量，24小时VIP，解锁流媒体节点，网络快速稳定](https://t.me/vpn_patch/3170)
+
+![111](https://github.com/user-attachments/assets/e9aec149-8f36-432a-99d3-87e8db73296a)
+
+
 [2026/3/21增加PureVPN，破解无限白嫖，解锁流媒体节点，超多国家节点，无限刷邀请增加VIP时间](https://t.me/vpn_patch/3067)
 
 <img width="850" height="625" alt="123" src="https://github.com/user-attachments/assets/5e35d8a2-1d1e-4a77-93e8-b6e0ba51c71d" />
