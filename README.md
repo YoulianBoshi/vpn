@@ -8,7 +8,7 @@
 youlianboshi
 ```
 
-[2026/2/20火种VPN稳定快速，邀请码+绑定临时邮箱兑换积分可无限白嫖6天VIP时间,邀请码：m2ahssw](https://deeplink.huozhong.xyz/applyPromo/1elwsxg)，注册失败清空浏览器缓存和换IP，用宽带重启路由器，用手机WiFi打开飞行莫模式60秒即可解决问题[点击进入后台注册接口获取6天VPN试用](https://deeplink.huozhong.xyz/applyPromo/1elwsxg)
+[2026/2/20火种VPN稳定快速，邀请码+绑定临时邮箱兑换积分可无限白嫖6天VIP时间,邀请码：1elwsxg](https://deeplink.huozhong.xyz/applyPromo/1elwsxg)，注册失败清空浏览器缓存和换IP，用宽带重启路由器，用手机WiFi打开飞行莫模式60秒即可解决问题[点击进入后台注册接口获取6天VPN试用](https://deeplink.huozhong.xyz/applyPromo/1elwsxg)
 
 [火种VPN客户端破解补丁](https://ylbs.lanzoul.com/ixC5d3g02upc)
 
