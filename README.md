@@ -8,6 +8,11 @@
 youlianboshi
 ```
 
+[2026/4/12无限白嫖VPN，每次重置ID获得一小时50G流量](https://t.me/vpn_patch/4677)
+
+<img width="500" height="750" alt="11" src="https://github.com/user-attachments/assets/8828108d-3c6e-483c-b70b-c953fe8c3386" />
+
+
 [2026/4/8火种VPN稳定快速，邀请码+绑定临时邮箱兑换积分可无限白嫖6天VIP时间,邀请码：1elwsxg](https://deeplink.huozhong.xyz/applyPromo/1elwsxg)，注册失败清空浏览器缓存和换IP，用宽带重启路由器，用手机WiFi打开飞行莫模式60秒即可解决问题[点击进入后台注册接口获取6天VPN试用](https://deeplink.huozhong.xyz/applyPromo/1elwsxg)
 
 [火种VPN客户端破解补丁](https://ylbs.lanzoul.com/ixC5d3g02upc)
