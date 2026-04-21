@@ -1,4 +1,4 @@
-**本项目长期更新，高封锁期永不失联，建议点击右上角“Star”给个星★收藏不迷路😂** [加入TG群组优验更多VPN吧](https://t.me/vpn_patch)
+**本项目长期更新，高封锁期永不失联，建议点击右上角“Star”给个星★收藏不迷路😂** [加入TG群组优验更多VPN吧](https://t.me/+pLkFO1za305iMmYx)
 
 [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://www.lanzoul.com/iARSM265nfeb)
 
@@ -8,7 +8,7 @@
 youlianboshi
 ```
 
-[2026/4/12无限白嫖VPN，每次重置ID获得一小时50G流量](https://t.me/vpn_patch/4677)
+[2026/4/12无限白嫖VPN，每次重置ID获得一小时50G流量](https://t.me/c/3305349155/4678)
 
 <img width="500" height="750" alt="11" src="https://github.com/user-attachments/assets/8828108d-3c6e-483c-b70b-c953fe8c3386" />
 
@@ -19,16 +19,11 @@ youlianboshi
 
 ![](https://img.erpweb.eu.org/imgs/2026/02/06b694057c8f89c9.jpg)
 
-[2026/3/23瞬连VPN一键破解补丁，无限白嫖10G高速流量，24小时VIP，解锁流媒体节点，网络快速稳定](https://t.me/vpn_patch/3170)
-
-![111](https://github.com/user-attachments/assets/e9aec149-8f36-432a-99d3-87e8db73296a)
-
-
-[2026/3/21增加PureVPN，破解无限白嫖，解锁流媒体节点，超多国家节点，无限刷邀请增加VIP时间](https://t.me/vpn_patch/3067)
+[2026/3/21增加PureVPN，破解无限白嫖，解锁流媒体节点，超多国家节点，无限刷邀请增加VIP时间](https://t.me/c/3305349155/4787)
 
 <img width="850" height="625" alt="123" src="https://github.com/user-attachments/assets/5e35d8a2-1d1e-4a77-93e8-b6e0ba51c71d" />
 
-[2026/3/18最新破解VPN，无限白嫖3天时间，注册即送300G流量，极速专线节点，支持解锁流媒体](https://t.me/vpn_patch/3032?single)
+[2026/3/18最新破解VPN，无限白嫖3天时间，注册即送300G流量，极速专线节点，支持解锁流媒体](https://t.me/c/3305349155/3033)
 
 ![](https://img.erpweb.eu.org/imgs/2026/03/862d7d07b57e7c59.jpg)
 
