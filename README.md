@@ -1,4 +1,4 @@
-**本项目长期更新，高封锁期永不失联，建议点击右上角“Star”给个星★收藏不迷路😂** [加入TG频道更多VPN](https://t.me/+P3IWwNkr3nY5MGFh)
+**本项目长期更新，高封锁期永不失联，建议点击右上角“Star”给个星★收藏不迷路😂** [加入TG频道白嫖更多VPN](https://t.me/+P3IWwNkr3nY5MGFh)
 
 [缺少DLL文件下载吾爱破解大佬开发的VC++驱动补丁](https://www.lanzoul.com/iARSM265nfeb)
 
