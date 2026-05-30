@@ -12,7 +12,7 @@ youlianboshi
 
 <img width="1332" height="1381" alt="image" src="https://github.com/user-attachments/assets/03128485-a3be-4fa4-82a1-0c1811abbf22" />
 
-[2026/4/12无限白嫖VPN，每次重置ID获得一小时50G流量](https://t.me/c/3305349155/4678)
+[2026/4/12无限白嫖VPN，每次重置ID获得一小时50G流量](https://t.me/c/330534-/4678)
 
 <img width="500" height="750" alt="11" src="https://github.com/user-attachments/assets/8828108d-3c6e-483c-b70b-c953fe8c3386" />
 
@@ -23,11 +23,11 @@ youlianboshi
 
 ![](https://img.erpweb.eu.org/imgs/2026/02/06b694057c8f89c9.jpg)
 
-[2026/3/21增加PureVPN，破解无限白嫖，解锁流媒体节点，超多国家节点，无限刷邀请增加VIP时间](https://t.me/c/3305349155/4787)
+[2026/3/21增加PureVPN，破解无限白嫖，解锁流媒体节点，超多国家节点，无限刷邀请增加VIP时间](https://t.me/c/3305--/4787)
 
 <img width="850" height="625" alt="123" src="https://github.com/user-attachments/assets/5e35d8a2-1d1e-4a77-93e8-b6e0ba51c71d" />
 
-[2026/3/18最新破解VPN，无限白嫖3天时间，注册即送300G流量，极速专线节点，支持解锁流媒体](https://t.me/c/3305349155/3033)
+[2026/3/18最新破解VPN，无限白嫖3天时间，注册即送300G流量，极速专线节点，支持解锁流媒体](https://t.me/c/3305-/3033)
 
 ![](https://img.erpweb.eu.org/imgs/2026/03/862d7d07b57e7c59.jpg)
 
